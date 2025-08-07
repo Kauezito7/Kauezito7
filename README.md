@@ -44,8 +44,8 @@
 
 ### 🌐 Contato
 
-- 📧 Email: seuemail@email.com
-- 💼 LinkedIn: [Seu LinkedIn](https://www.linkedin.com/in/seuusuario)
+- 📧 Email: kauehago07@email.com
+- 💼 LinkedIn: (https://www.linkedin.com/in/kaue-moura-85460335a/)
 
 ---
 
